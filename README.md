@@ -1,4 +1,4 @@
-# portif-lio
+portifolio profissional:MEDICINA VETERINARIA são paulo📍| telefone 📞 (17) 98813-4455| email mariayasminmattosdias299@gmail.com 
 Sou médica veterinária com paixão pela saúde e bem-estar animal, formada pela UNESP em 5 anos. Tenho experiência em animais de peque e grande porte / animais silvestres / laboratório / inspeção sanitária], com foco em atendimento humanizado, diagnóstico preciso e atuação ética. Busco constantemente atualização profissional, conciliando conhecimento técnico com empatia no cuidado aos animais e seus tutores.
 
 Bacharelado em Medicina Veterinária
@@ -42,6 +42,4 @@ Competências Pessoais:
 -Capacidade de decisão em situações críticas
 -Organização e atenção aos detalhesCertificados e Reconhecimentos
 
-Dra.Maria yasmin
-Emaile : mariayasminattosdias299@gmail.com
-telefone 📞 (17) 98813-4455
+
